@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Rushi!<br><br>I am a First-year B.Tech CS Student.
+Hi, I'm Rushi!<br><br>I am a Second-year B.Tech CS Student.
 
 
 ## 🌐 Socials:
